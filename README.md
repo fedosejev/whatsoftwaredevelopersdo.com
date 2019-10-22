@@ -1,1 +1,1 @@
-# whatsoftwaredevelopersdo.com
+http://whatsoftwaredevelopersdo.com/
